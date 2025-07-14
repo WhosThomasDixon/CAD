@@ -1,0 +1,1 @@
+Variable Infill Insole for an individual to customize the cushion on an insole or heel riser in the option of FDM techniques. Made out of 95A TPU for form and flex plus inventory availability. 
