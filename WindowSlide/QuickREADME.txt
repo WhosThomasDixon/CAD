@@ -1,0 +1,1 @@
+Window slide male attachment for a Z sliding glass window clip. Secures on rail and the clip can be used to adjust position on frame. 
